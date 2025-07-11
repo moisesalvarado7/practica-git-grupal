@@ -5,5 +5,8 @@
 3. Agregar salsa de tomate.
 4. Añadir queso y toppings.
 5. Hornear 15-20 minutos.
-6. Revisar la capa de queso primaria
-7. Si se quiere mas crujiente dejar 5 minutos mas.
+6.Disfrutar de la pizza
+7.Sentirte culpable porque la comiste toda tú solo.
+8. Revisar la capa de queso primaria
+9. Si se quiere mas crujiente dejar 5 minutos mas.
+
