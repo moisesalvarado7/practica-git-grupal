@@ -7,3 +7,6 @@
 5. Hornear 15-20 minutos.
 6.Disfrutar de la pizza
 7.Sentirte culpable porque la comiste toda tú solo.
+8. Revisar la capa de queso primaria
+9. Si se quiere mas crujiente dejar 5 minutos mas.
+
